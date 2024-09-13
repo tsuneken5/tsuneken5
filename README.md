@@ -1,5 +1,5 @@
 ## Hi there 👋
-- How to reach me: [Twitter - @tsuneken5](https://x.com/tsuneken5)
+- How to reach me: [X - @tsuneken5](https://x.com/tsuneken5)
 <br>
 
 ## 🌱 Skills
